@@ -1,0 +1,2 @@
+# ejerciciosdemecanica
+ciencia y educacion 
